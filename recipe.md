@@ -1,0 +1,1 @@
+you first need to add the flour with baking soda, baking powder and powdered sugar. Then you need to add milk and stir untill you get a semi liquid batter. then put the batter on a frying pan on the stove. once the pancake is ready put nutella on it and the dish is ready.
